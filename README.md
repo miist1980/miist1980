@@ -1,5 +1,5 @@
 - 👋 last i checked i
-- didn give a shit?
+- didn give a sh*t?
 
 <!---
 miist1980/miist1980 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
